@@ -1,5 +1,5 @@
 # 💫 About Me:
-"BS IT Student | Specializing in Information Network Security | Passionate about Protecting Digital Infrastructure"<br><br><br><br>
+"BS IT Student | Specializing in Information Network Security | Passionate about Protecting Digital Infrastructure"<br><br>
 
 
 ## 🌐 Socials:
